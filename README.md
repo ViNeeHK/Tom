@@ -1,2 +1,0 @@
-# Tom
-What is Hacking
